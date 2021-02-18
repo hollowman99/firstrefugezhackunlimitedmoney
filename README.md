@@ -1,1 +1,3 @@
-# firstrefugezhackunlimitedmoney
+First Refuge Z Hack Unlimited Money Cheats IOS Android Mod
+
+Today we will make many First Refuge Z players happy. Time to announce that we have hacked this amazing game. Because your score will amaze your friends today, you are the best. Everyone will envy you.All thanks to us, more precisely to our tool that adds money to the game. It was complicated and difficult. It took our engineers a long time to make you happy. They created a tool with a simple interface so that it wasn't difficult to use. The whole process of adding money takes just a moment without you having to download anything. We guarantee fast and stable work. Our anti-ban system with IP change through private proxies guarantees the complete security of your account and leaves no traces on the game servers. http://bit.ly/first-refuge-z-hack-unlimited-money
